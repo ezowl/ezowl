@@ -1,0 +1,4 @@
+- 👋 Bonjour je m'appelle Etan
+- 👀 Etudiant chez la Normandie Web School
+- 🌱 Joue souvent au jeux videos
+- 💞️ Obtention d'un bac+3 en communication et poursuite dans se domaine
